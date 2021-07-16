@@ -1,0 +1,3 @@
+Cryptics JINX Crack leak...
+He scams Lmao
+GymRevenant#1234 <3
